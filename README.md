@@ -1,0 +1,2 @@
+# divendres-Santi
+delete (trash)
